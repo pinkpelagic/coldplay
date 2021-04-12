@@ -1,1 +1,1 @@
-https://pinkpelagic.github.io/coldplay/
+https://sonaligupta22.github.io/coldplay/
